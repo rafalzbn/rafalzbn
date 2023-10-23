@@ -1,5 +1,6 @@
 ### Oie!! me chamo Rafaela Luiza Bonato 1°F 🇧🇷
 *Uso o Git Hub pára compartilhar e salvar meu projetos.* 🫀
+
 *Atualmente estou aprendendo Java, javaScript, HTML e CSS.* 👾
 
 ###Meu email para contato é 💌
