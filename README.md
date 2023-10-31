@@ -6,4 +6,4 @@
 ###Meu email para contato é 💌
 rafaela.bonato@escola.pr.gov.br
 
-![](https://media.tenor.com/zJ1OVszuPDQAAAAC/hanako-kun-tbhk.gif)
+![](https://media.tenor.com/gksz6ntkkYMAAAAd/tsukasa-yugi-jbhk.gif)
